@@ -17,3 +17,4 @@ I hope I get a good grade on this assignment.
 I am currently listening to music that's in spanish and I have no idea what is be being said.
 Today is a good day.
 I don't have too much homework so that's a plus.
+This is easy.
