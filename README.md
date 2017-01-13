@@ -9,3 +9,4 @@ I think i'm going to like this class
 The people here are cool
 Did you know that today is my birthday?
 Except i'm home alone all day
+Which isn't too bad. I just get to do homework in peace and quiet
