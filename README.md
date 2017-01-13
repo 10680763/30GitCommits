@@ -7,3 +7,4 @@ I'm assuming this is working
 The commits count is going up. This is good. I think.
 I think i'm going to like this class
 The people here are cool
+Did you know that today is my birthday?
