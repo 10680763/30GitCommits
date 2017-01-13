@@ -24,3 +24,4 @@ I hope not.
 Well here's to hoping.
 I have two dogs.
 They are both golden retrievers.
+Their names are Jimmer and Fredette.
