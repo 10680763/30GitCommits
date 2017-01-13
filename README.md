@@ -12,3 +12,4 @@ Except i'm home alone all day
 Which isn't too bad. I just get to do homework in peace and quiet
 It's cold outside
 I'm not really followimg instructions...
+I just don't want to come back to my computer 30 different times during the day to update on the weather.
