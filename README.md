@@ -18,3 +18,4 @@ I am currently listening to music that's in spanish and I have no idea what is b
 Today is a good day.
 I don't have too much homework so that's a plus.
 This is easy.
+Too easy...
