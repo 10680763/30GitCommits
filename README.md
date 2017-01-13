@@ -15,3 +15,4 @@ I'm not really followimg instructions...
 I just don't want to come back to my computer 30 different times during the day to update on the weather.
 I hope I get a good grade on this assignment.
 I am currently listening to music that's in spanish and I have no idea what is be being said.
+Today is a good day.
