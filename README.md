@@ -26,3 +26,4 @@ I have two dogs.
 They are both golden retrievers.
 Their names are Jimmer and Fredette.
 They are the best dogs.
+I also have a cat.
